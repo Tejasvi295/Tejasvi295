@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Tejasvi
+- 👋 I’m Tejasvi
 - 👀 I’m interested in designing
 - 🌱 I’m currently learning Adobe Illustrator
 - 💞️ I’m looking to collaborate on any canva project.
